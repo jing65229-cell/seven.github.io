@@ -1,8 +1,8 @@
-欧易OKX（海外）注册地址：  www.okx.com/join/75360361
+欧易OKX（海外）注册地址：  [欧易OKX（海外）注册地址](www.okx.com/join/75360361)
 
-币安Binance（海外）海外注册地址：  www.binance.com/zh-CN/join ?ref=LD33MNM1
+币安Binance（海外）海外注册地址： [币安Binance（海外）海外注册地址）注册地址](www.binance.com/zh-CN/join ?ref=LD33MNM1)
 
-注册国内（欧易/币安）合集安装包下载：  www.5okx.cc
+注册国内（欧易/币安）合集安装包下载：  [国内（欧易/币安）合集安装包下载）注册地址](WWW.5OKX.CC)
 
 Here is the English translation of your provided text:
 
